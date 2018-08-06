@@ -1,2 +1,3 @@
 # Debut
 First repository. Got no clue what's going to happen next...
+IT's aliveeee!!!
